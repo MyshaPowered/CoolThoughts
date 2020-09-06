@@ -1,0 +1,2 @@
+# CoolThoughts
+My Cool Thoughts
